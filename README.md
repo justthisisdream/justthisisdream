@@ -3,4 +3,4 @@
 - im learning, to read earth.
 - i am a writer. I want a very small space. that is rest. and all tired people, i think need too. stop the war. take your health.
 - 📫 How to reach me ... soo-on-0@naver.com - just mail.
-I'm currently overloaded with my brain. So if you want to talk to me, just send me an email.
+- I'm currently overloaded with my brain. So if you want to talk to me, and want help me. just send me an email.
