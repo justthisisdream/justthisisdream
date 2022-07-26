@@ -5,4 +5,5 @@
 - 📫 How to reach me ... soo-on-0@naver.com - just mail.
 - I'm currently overloaded with my brain. So if you want to talk to me, and want help me. just send me an email.
 * my english is very elementury. why? that mean is connect or talk or need meet.
-soon. i all link connect. step by step. because i'm dying for my brain world war.
+soon. i all link connect. step by step. 
+- because i'm dying for my brain world war.
